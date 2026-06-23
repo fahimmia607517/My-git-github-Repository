@@ -1,0 +1,1 @@
+Sign in or sign up for free to start using Word for the web right away, no installation or purchase required.git
